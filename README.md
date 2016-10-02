@@ -34,7 +34,7 @@
 
   其实我长这样：
 
- ![image](http://image.baidu.com/detail/)
+ ![image](http://image.baidu.com/detail/newindex?col=&tag=%E9%BB%98%E8%AE%A4%E4%B8%93%E8%BE%91&pn=0&pid=37664301444&aid=412797328&user_id=1131950090&setid=-1&sort=0&newsPn=&star=&fr=&from=0)
 
 
 ------
