@@ -30,11 +30,11 @@
 
   我希望我长这样：
 
- ![image](https://coding.net/u/YangYongjian)
+ ![image](http://qpic.cn/cBQPvjbot)
 
   其实我长这样：
 
- ![image](http://qpic.cn/MBANL99http://a3.qpic.cn/psb?/V11PJkGv30Mgtb/wixXi7jFATmk1OdbV9bYXh7juAy7MkWWCUeCyGS1MsY!/b/dAoBAAAAAAAA&bo=aAG6AWgBugEFACM!&rf=viewer_4Ti)
+ ![image](http://qpic.cn/MBANL99Ti)
 
 
 ------
