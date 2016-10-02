@@ -30,11 +30,11 @@
 
   我希望我长这样：
 
- ![image](http://qpic.cn/cBQPvjbot)
+ ![image](http://qpic.cn/cBQPvjhttp://a2.qpic.cn/psb?/V11PJkGv30Mgtb/kSuYGqOqcTVjfd5zIjZwbXLLUTpHxJQIB3uaukH8fwk!/b/dAkBAAAAAAAA&bo=gAc4BIAHOAQFACM!&rf=viewer_4bot)
 
   其实我长这样：
 
- ![image](http://qpic.cn/MBANL99Ti)
+ ![image](http://qpic.cn/MBANL99http://a3.qpic.cn/psb?/V11PJkGv30Mgtb/wixXi7jFATmk1OdbV9bYXh7juAy7MkWWCUeCyGS1MsY!/b/dAoBAAAAAAAA&bo=aAG6AWgBugEFACM!&rf=viewer_4Ti)
 
 
 ------
