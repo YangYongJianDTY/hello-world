@@ -30,7 +30,7 @@
 
   我希望我长这样：
 
- ![image](http://qpic.cn/cBQPvjhttp://a2.qpic.cn/psb?/V11PJkGv30Mgtb/kSuYGqOqcTVjfd5zIjZwbXLLUTpHxJQIB3uaukH8fwk!/b/dAkBAAAAAAAA&bo=gAc4BIAHOAQFACM!&rf=viewer_4bot)
+ ![image](https://coding.net/u/YangYongjian)
 
   其实我长这样：
 
