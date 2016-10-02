@@ -30,11 +30,11 @@
 
   我希望我长这样：
 
- ![image](http://image.baidu.com/detail/)
+ ![image](http://ww2.sinaimg.cn/mw690/005NdSBLgw1f8e1dhb2dnj31hc0u0thz.jpg)
 
   其实我长这样：
 
- ![image](http://image.baidu.com/detail/newindex?col=&tag=%E9%BB%98%E8%AE%A4%E4%B8%93%E8%BE%91&pn=0&pid=37664301444&aid=412797328&user_id=1131950090&setid=-1&sort=0&newsPn=&star=&fr=&from=0)
+ ![image](http://ww1.sinaimg.cn/mw690/005NdSBLgw1f8e1dmpwgpj30a00camxs.jpg)
 
 
 ------
